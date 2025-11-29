@@ -537,7 +537,7 @@ AI specialization student — passionate about real-world AI agents.
 
 - Kaggle profile(https://www.kaggle.com/karnapusravanthi)
   
-- LinkedIn profile(https://www.linkedin.com/in/sravanthi-karnapu)
+- LinkedIn profile(https://www.linkedin.com/in/sravanthi-karnapu-a36865295?)
 
   ---
 
